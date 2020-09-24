@@ -1,2 +1,0 @@
-# 1tapsyrma
-emtihan
